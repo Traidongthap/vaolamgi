@@ -1,6 +1,6 @@
 Vào đây làm cái gì...  lỡ vào rồi thì đọc đi...  có ích lắm đấy!!! 
 
-Em có sai với ai đi nữa, có làm cái gì đi nữa. Nếu có phải trả giá thì em cũng xin chấp nhận. Bởi vì anh biết đấy. Ra xã hội làm ăn bươn chải. Liều thì ăn nhiều, không liều thì ăn ít. Muốn thành công thì phải chấp nhận chịu qua đắng cay ngọt bùi. Làm ăn muốn kiếm được tiền phải chấp nhận mạo hiểm, nguy hiểm một tý, nhưng "trong tầm kiểm soát"
+Bạn có sai với ai đi nữa, có làm cái gì đi nữa. Nếu có phải trả giá thì bạn cũng xin chấp nhận. Bởi vì bạn biết đấy. Ra xã hội làm ăn bươn chải. Liều thì ăn nhiều, không liều thì ăn ít. Muốn thành công thì phải chấp nhận chịu qua đắng cay ngọt bùi. Làm ăn muốn kiếm được tiền phải chấp nhận mạo hiểm, nguy hiểm một tý, nhưng "trong tầm kiểm soát"
 
 Xã hội này chỉ có làm, chịu khó, cần cù thì bù siêng năng. Chỉ có làm thì mới có ăn. Những cái loại không làm mà đòi có ăn thì chỉ có ăn đầu buồi, ăn cứt.
 
